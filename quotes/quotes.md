@@ -9,11 +9,15 @@ I do not memorize. I apply.
 Do good things even if justice denies you.
 ###
 
-> Will the LORD leave you? No. Not even a chance.
+###
+Will the LORD leave you? No. Not even a chance.
+###
 
-> Tick... Tock... Tick... Tock...  
-  You are running out of time...  
-  Make your time precious and valuable.
+###
+    Tick... Tock... Tick... Tock...  
+    You are running out of time...  
+    Make your time precious and valuable.
+###
 
 ___
 Play a thousand times,  

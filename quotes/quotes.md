@@ -24,23 +24,29 @@
     Win a billion times,
         ~ Experience
 ###
-___
-What is work being one without conviction?
 
-___
-Effort and knowledge are the best way to defeat someone like hell.
+###
+    What is work being one without conviction?
+###
 
-___
-When you find one,  
-likely you found everything.  
-When you lost it,  
-you lost everything.  
+###
+    Effort and knowledge are the best way 
+    to defeat someone like hell.
+###
 
-___
-Yes - it is too difficult  
-Yes - it is too hard to understand  
-And once you do everything in progress,  
-everything makes easier  
+###
+    When you find one,
+    likely you found everything.
+    When you lost it,
+    you lost everything.
+###
+
+###
+    Yes - it is too difficult
+    Yes - it is too hard to understand
+    And once you do everything in progress,
+    everything makes easier
+###
 
 ___
 Everything has a problem  

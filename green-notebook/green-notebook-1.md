@@ -128,5 +128,10 @@ Leading oneself and others
 &emsp; Matthew 6:9-15  
 &emsp; Exodus 1:10  
 &emsp; Exodus 1:7  
-&emsp; Joshua 1:1-11
+&emsp; Joshua 1:1-11  
+&emsp; Psalms 14:23  
+&emsp; Matthew 18:3  
+&emsp; Matthew 19:23  
+&emsp; Psalm 34:15  
+&emsp; James 5:16
 ___

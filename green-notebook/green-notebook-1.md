@@ -116,7 +116,7 @@ Leading oneself and others
 &emsp; Exodus 1:7  
 &emsp; Joshua 1:1-11  
 &emsp; Philemon 1:17-22  
-&emsp; Ephesians 2:19-22
+&emsp; Ephesians 2:19-22  
 &emsp; 2 Timothy 2:14-17  
 &emsp; Matthew 5:43-48  
 &emsp; Acts 10:44-48  

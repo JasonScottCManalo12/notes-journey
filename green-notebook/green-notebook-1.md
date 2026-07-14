@@ -1,7 +1,7 @@
 ___
 ENJOYING GOD  
-    Learning to Rejoice  
-    By Bruce Gootsche  
+&emsp; Learning to Rejoice  
+&emsp; By Bruce Gootsche  
 ___
   
 ___

@@ -6,7 +6,7 @@ ___
   
 ___
 1. What does it mean to rejoice?
-     - Obligation Mindset
+     - Obligation Mindset  
            Philippians 4:4
 2. Why is it sometimes difficult to rejoice?
      - We do not have an authentic relationship with God

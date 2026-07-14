@@ -6,3 +6,6 @@ ___
 
 Do good things even if justice denies you.
 ___
+
+Will the LORD leave you? No. Not even a chance.
+___

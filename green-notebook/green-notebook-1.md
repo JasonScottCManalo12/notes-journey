@@ -53,25 +53,25 @@ Prayer is a privilege
 &emsp; Mark 11:24  
 
 Prayer is a command  
-Psalm 100:4  
-1 Thessalonian 5:17  
-Philippians 4:6  
+&emsp; Psalm 100:4  
+&emsp; 1 Thessalonian 5:17  
+&emsp; Philippians 4:6  
 
 Prayer draws near to God  
-1 Peter 5:5-7  
+&emsp; 1 Peter 5:5-7  
 
-Prayer has the power to change your life and the lives of others
+Prayer has the power to change your life and the lives of others  
 
-How to pray sincerely
+How to pray sincerely  
 
 Our motives must be pure  
-    Matthew 6:5
+&emsp; Matthew 6:5  
 
-Develop a private devotion where you can pray longer to God
-    Matthew 6:6
+Develop a private devotion where you can pray longer to God  
+&emsp; Matthew 6:6  
 
-Recognize the objection to prayer
-    Matthew 6:8
+Recognize the objection to prayer  
+&emsp; Matthew 6:8  
 
 Praying with confidence  
   - Abide (John 15:7)
@@ -81,11 +81,52 @@ Praying with confidence
 
     Conclusion (Philippians 4:8)
 
-Leading oneself and others
-    2 Timothy 2:1-2
-    Matthew 16:24-26 
-    Luke 9:57-62
-    Galatians 2:20
-    Mark 8:35
-    1 Timothy 4:7-8
+Leading oneself and others  
+&emsp; 2 Timothy 2:1-2  
+&emsp; Matthew 16:24-26  
+&emsp; Luke 9:57-62  
+&emsp; Galatians 2:20  
+&emsp; Mark 8:35  
+&emsp; 1 Timothy 4:7-8  
+
+&emsp; 1 Corinthians 13:1-6  
+&emsp; Luke 2:11-12  
+&emsp; Luke 2:40  
+&emsp; Luke 2:47  
+&emsp; Matthew 3:16-17  
+&emsp; Matthew 9:35  
+&emsp; Luke 22:19-20  
+&emsp; Luke 22:40  
+&emsp; Luke 22:44  
+&emsp; Philippians 2:1-11  
+&emsp; Ephesians 6:1-4  
+&emsp; Habakkuk 3:18  
+&emsp; Mark 3:31-35  
+&emsp; John 11:11  
+&emsp; Genesis 6:7  
+&emsp; Psalm 107:43  
+&emsp; Genesis 8:9  
+&emsp; Matthew 6:33  
+&emsp; Genesis 9:12-16  
+&emsp; Genesis 4:11  
+&emsp; Genesis 18:3-5  
+&emsp; Genesis 18:24-36  
+&emsp; Philippians 2:1-18  
+&emsp; Exodus 1:10  
+&emsp; Exodus 1:7  
+&emsp; Joshua 1:1-11  
+&emsp; Philemon 1:17-22  
+&emsp; Ephesians 2:19-22
+&emsp; 2 Timothy 2:14-17
+&emsp; Matthew 5:43-48  
+&emsp; Acts 10:44-48
+&emsp; Romans 12:1-7
+&emsp; Matthew 26:36-46  
+&emsp; Ephesians 5:1-7, 5:21-32, 6:1-3  
+&emsp; Psalm 127:1  
+&emsp; 2 Corinthians 12: 9  
+&emsp; Matthew 6:9-15  
+&emsp; Exodus 1:10  
+&emsp; Exodus 1:7  
+&emsp; Joshua 1:1-11
 ___

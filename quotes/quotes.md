@@ -172,24 +172,127 @@
 ###
     Learn to control yourself before the nation.
 
+###
+    S - Security
+    T - Technology
+    R - Religion
+    E - Education
+    A - Agriculture
+    M - Medicine
 
+    These six (6) words should be LEARNED
+    as EARLY, 
+    as HARD, 
+    as SMART, 
+    as FAR as we CAN.
 
+###
+    A genuine knowledge,
+    perfection in skills
+    and unconditional love
+    are the only true investments
+    that we can have in this world.
 
+###
+    Effort, self-sacrifice,
+    and failure are the most
+    stepping stones to gain
+    knowledge and financial 
+    freedom.
 
+###
+    Arts, language, history,
+    culture, and science,
+    have one in common ———
+    the power to create.
 
+###
+    The way we write ——— 
+    machine language is also
+    the way we write
+    human language.
 
+###
+    False liberation
+    Plus
+    Contradicting doctrines
+    Multiplied by
+    Mass inferiority
+    to the Uncanning Power
+    of Aggressiveness and 
+    Superiority Authority
 
+    Equals
+    Complete Slavery
 
+###
+    Worldly human rights
+    is another selfish
+    ambition of man.
 
+###
+    Have more than fifteen (15) times
+    to polish five (5) times the
+    objectives that can be done
+    in three (3) stages of work
+    on a single plan.
 
+###
+    Perfection begets everything.
+    Wicked begets nothing.
 
+###
+    Each failure is a step.
+    Each step is a success.
+    Each success is a milestone.
 
+###
+    Nearly all men can stand adversity.
+    But, if you want to test man's character,
+    give him power
 
+###
+    The asset is not about the knowledge.
+    It is about the attitude.
 
+###
+    Freedom is what causes us to sin!
+    But what is this freedom?
+    A freedom we want to be, 
+    not what God needs us to be!
 
+###
+    I do God's order,
+    not man's order.
 
+###
+    All the important decisions in life
+    often come down to just one moment.
 
+###
+    The problem of today is not a 
+    problem of yesterday.
 
+###
+    Knowing is the art of learning.
 
+###
+    No man shall stand up straight.
+
+###
+    Always remember who you are.
+
+###
+    Serve the people through heaven,
+    and the heaven will serve you.
+
+###
+    The conception of creation has
+    the power to move its pieces
+    to its original state.
+
+###
+    Clustering is the art of
+    organized clutter
 
 

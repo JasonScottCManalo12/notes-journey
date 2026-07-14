@@ -1,7 +1,7 @@
 ___
 ENJOYING GOD  
-  Learning to Rejoice  
-  By Bruce Gootsche
+    Learning to Rejoice
+    By Bruce Gootsche
 ___
   
 ___
@@ -23,29 +23,29 @@ ___
 ___
   
 ___
-A call to perseverance  
-  Hebrew 10:25  
+A call to perseverance
+    Hebrew 10:25
 
-The Power to Serve and To Transform  
-  1 Peter 4:10  
+The Power to Serve and To Transform
+    1 Peter 4:10
 
-Renewing my Gifts for God  
-  2 Timothy 1:6-7  
+Renewing my Gifts for God
+    2 Timothy 1:6-7
 
-Serving his/her community  
-  1 Peter 4:11  
+Serving his/her community
+    1 Peter 4:11
 
-  Matthew 6:1  
-  Matthew 5:16  
+  Matthew 6:1
+  Matthew 5:16
 
 Prayer in all things  
 
-Pray continually  
-  1 Thessalonian  
+Pray continually
+  1 Thessalonian
 
-  Philippians 4:4-6  
-  James 5:15-16  
-  Mark 9:14-29  
+  Philippians 4:4-6
+  James 5:15-16
+  Mark 9:14-29
 
 Prayer is a privilege
   Matthew 7:7

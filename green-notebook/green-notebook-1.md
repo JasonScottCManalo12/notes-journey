@@ -23,32 +23,32 @@ ___
 ___
   
 ___
-A call to perseverance
-    Hebrew 10:25
+A call to perseverance  
+&emsp; Hebrew 10:25  
 
-The Power to Serve and To Transform
-    1 Peter 4:10
+The Power to Serve and To Transform  
+&emsp; 1 Peter 4:10  
 
-Renewing my Gifts for God
-    2 Timothy 1:6-7
+Renewing my Gifts for God  
+&emsp; 2 Timothy 1:6-7  
 
-Serving his/her community
-    1 Peter 4:11
+Serving his/her community  
+&emsp; 1 Peter 4:11
 
-  Matthew 6:1
-  Matthew 5:16
+&emsp; Matthew 6:1  
+&emsp; Matthew 5:16  
 
 Prayer in all things  
 
-Pray continually
-  1 Thessalonian
+Pray continually  
+&emsp; 1 Thessalonian  
 
-  Philippians 4:4-6
-  James 5:15-16
-  Mark 9:14-29
+&emsp; Philippians 4:4-6  
+&emsp; James 5:15-16  
+&emsp; Mark 9:14-29  
 
-Prayer is a privilege
-  Matthew 7:7
-  Matthew 21:22
-  Mark 11:24
+Prayer is a privilege  
+&emsp; Matthew 7:7  
+&emsp; Matthew 21:22  
+&emsp; Mark 11:24  
 ___

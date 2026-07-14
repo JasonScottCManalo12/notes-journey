@@ -1,10 +1,8 @@
 # Quotes
 
----
-
-> I do not memorize. I apply.
-
----
+<hr>
+I do not memorize. I apply.
+<hr>
 
 > Do good things even if justice denies you.
 

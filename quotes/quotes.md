@@ -1,15 +1,11 @@
 # Quotes
 
-<hr>
+
+-------
 I do not memorize. I apply.
+-------  
 
-
-
-
-
-
-<hr>
-> Do good things even if justice denies you.
+Do good things even if justice denies you.
 
 > Will the LORD leave you? No. Not even a chance.
 

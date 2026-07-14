@@ -1,11 +1,15 @@
 # Quotes
 
+###
     I do not memorize. I apply.
-
-    Do good things even if justice denies you.
+###
 
 ###
-Will the LORD leave you? No. Not even a chance.
+    Do good things even if justice denies you.
+###
+
+###
+    Will the LORD leave you? No. Not even a chance.
 ###
 
 ###
@@ -14,12 +18,12 @@ Will the LORD leave you? No. Not even a chance.
     Make your time precious and valuable.
 ###
 
-___
-Play a thousand times,  
-Fail a million times,  
-Win a billion times,  
-~ Experience
-
+###
+    Play a thousand times,  
+    Fail a million times,  
+    Win a billion times,  
+        ~ Experience
+###
 ___
 What is work being one without conviction?
 

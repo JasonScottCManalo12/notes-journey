@@ -23,5 +23,5 @@ ___
 
      A call to perseverance  
      By Romelo Mendoza  
-     Hebrew 10:25  
-__
+     Hebrew 10:25
+___

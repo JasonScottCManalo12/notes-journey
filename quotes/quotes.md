@@ -13,15 +13,15 @@
 ###
 
 ###
-    Tick... Tock... Tick... Tock...  
-    You are running out of time...  
+    Tick... Tock... Tick... Tock...
+    You are running out of time...
     Make your time precious and valuable.
 ###
 
 ###
-    Play a thousand times,  
-    Fail a million times,  
-    Win a billion times,  
+    Play a thousand times,
+    Fail a million times,
+    Win a billion times,
         ~ Experience
 ###
 ___

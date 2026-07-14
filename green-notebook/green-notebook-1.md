@@ -1,8 +1,8 @@
----
+___
 ENJOYING GOD  
   Learning to Rejoice  
   By Bruce Gootsche
----
+___
 
 ***
 1. What does it mean to rejoice?

@@ -51,4 +51,14 @@ Prayer is a privilege
 &emsp; Matthew 7:7  
 &emsp; Matthew 21:22  
 &emsp; Mark 11:24  
+
+Prayer is a command  
+Psalm 100:4  
+1 Thessalonian 5:17  
+Philippians 4:6  
+
+Prayer draws near to God  
+1 Peter 5:5-7  
+
+
 ___

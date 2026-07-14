@@ -3,8 +3,8 @@ ENJOYING GOD
   Learning to Rejoice  
   By Bruce Gootsche
 ___
-
-***
+  
+___
 1. What does it mean to rejoice?
      - Obligation Mindset
      - Philippians 4:4
@@ -20,8 +20,4 @@ ___
      - Stay close to the source of joy
      - Remind yourself always to rejoice
      - Meditate on the goodness of God
-***
-
-___
-
-___
+__

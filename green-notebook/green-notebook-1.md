@@ -87,4 +87,5 @@ Leading oneself and others
     Luke 9:57-62
     Galatians 2:20
     Mark 8:35
+    1 Timothy 4:7-8
 ___

@@ -60,5 +60,31 @@ Philippians 4:6
 Prayer draws near to God  
 1 Peter 5:5-7  
 
+Prayer has the power to change your life and the lives of others
 
+How to pray sincerely
+
+Our motives must be pure  
+    Matthew 6:5
+
+Develop a private devotion where you can pray longer to God
+    Matthew 6:6
+
+Recognize the objection to prayer
+    Matthew 6:8
+
+Praying with confidence  
+  - Abide (John 15:7)
+  - Ask (Matthew 7:7-8)
+  - Believe (Matthew 21: 22, Mark 11:22)
+  - Receive (John 16:24)
+
+    Conclusion (Philippians 4:8)
+
+Leading oneself and others
+    2 Timothy 2:1-2
+    Matthew 16:24-26 
+    Luke 9:57-62
+    Galatians 2:20
+    Mark 8:35
 ___

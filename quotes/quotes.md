@@ -1,9 +1,9 @@
 # Quotes
 
 
--------
+###
 I do not memorize. I apply.
--------  
+###
 
 Do good things even if justice denies you.
 

@@ -117,10 +117,10 @@ Leading oneself and others
 &emsp; Joshua 1:1-11  
 &emsp; Philemon 1:17-22  
 &emsp; Ephesians 2:19-22
-&emsp; 2 Timothy 2:14-17
+&emsp; 2 Timothy 2:14-17  
 &emsp; Matthew 5:43-48  
-&emsp; Acts 10:44-48
-&emsp; Romans 12:1-7
+&emsp; Acts 10:44-48  
+&emsp; Romans 12:1-7  
 &emsp; Matthew 26:36-46  
 &emsp; Ephesians 5:1-7, 5:21-32, 6:1-3  
 &emsp; Psalm 127:1  

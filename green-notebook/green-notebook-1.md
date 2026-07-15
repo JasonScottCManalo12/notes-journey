@@ -193,60 +193,64 @@ Pray with Confidence
   - Receive, John 16:24
   - Conclusion, Philippians 4:8
 
+&emsp; Matthew 16:24-26  
 
+Over Response
+  - Luke 9:57-62
+  - Galatians 2:20
 
+Jesus' Warning and Promise
+  - Mark 8:35
+  - 1 Timothy 4:7-8
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+&emsp; Exodus 1:4-9  
+&emsp; Joshua 1:1-11  
+&emsp; Numbers 27:18-23
+&emsp; Philippians 4:13  
+&emsp; Proverbs 4:23  
+&emsp; Proverbs 1:5  
+&emsp; Proverbs 12:15  
+&emsp; Proverbs 19:20  
+&emsp; 2 Chronicles 16:9  
+&emsp; Exodus 1:10  
+&emsp; Exodus 1:7  
+&emsp; Joshua 1:1-11  
+&emsp; Philemon 17-22  
+&emsp; Ephesians 2:19-22  
+&emsp; 2 Timothy 2:14-17  
+&emsp; Matthew 5:43-48  
+&emsp; Acts 10:44-48  
+&emsp; Romans 12:1-17  
+&emsp; Matthew 26:36-46  
+&emsp; Ephesians 5:21-22, 6:1-3  
+&emsp; Ephesians 5:1-7  
+&emsp; Psalm 127:1  
+&emsp; 2 Corinthians 12:9  
+&emsp; Matthew 6:9-15  
+&emsp; 1 Corinthians 13:1-6  
+&emsp; Luke 2:11-12  
+&emsp; Luke 2:40  
+&emsp; Luke 2:47  
+&emsp; Matthew 9:35  
+&emsp; Luke 22:19-20  
+&emsp; Luke 22:42  
+&emsp; Luke 22:44  
+&emsp; Philippians 2:1-11  
+&emsp; Ephesians 6:1-4  
+&emsp; Habakkuk 3:18  
+&emsp; Mark 3:31-35  
+&emsp; John 11:11  
+&emsp; Genesis 6:7  
+&emsp; Psalm 107:43  
+&emsp; Genesis 6:11-12  
+&emsp; Psalm 109:4  
+&emsp; Genesis 8:9  
+&emsp; Matthew 6:33  
+&emsp; Genesis 9:12-16  
+&emsp; Genesis 4:11  
+&emsp; Genesis 18:3-5  
+&emsp; Genesis 18:24-36  
+&emsp; Philippians 2:1-18  
 
 
 

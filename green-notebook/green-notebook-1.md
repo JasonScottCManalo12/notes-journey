@@ -162,3 +162,138 @@ Leading oneself and others
 &emsp; Praise Jesus
   - Proverbs 12:8
 
+&emsp; Isiah 61:10  
+&emsp; 1 Thessalonians 5:16  
+&emsp; Philippians 4:4  
+
+&emsp; Hebrew 10:25  
+&emsp; 1 Peter 4:10  
+
+&emsp; 2 Timothy 1:6-7  
+&emsp; 1 Peter 4:11  
+&emsp; Matthew 6:1  
+&emsp; Matthew 5:16  
+&emsp; 1 Thessalonians  
+&emsp; Philippians 4:4-6  
+&emsp; James 5:15-16  
+&emsp; Mark 9:14-29  
+&emsp; Matthew 7:7  
+&emsp; Matthew 21:22  
+&emsp; Mark 11:24  
+&emsp; Psalm 100:4  
+&emsp; 1 Thessalonian 5:17  
+&emsp; Philippians 4:6  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

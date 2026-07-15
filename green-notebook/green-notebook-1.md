@@ -150,13 +150,15 @@ Leading oneself and others
 &emsp; Luke 13:3  
 &emsp; Romans 10:9-10  
 &emsp; Romans 14:17  
-&emsp; Matthew 15:4  
-&emsp; - Proverbs 4:5-9  
-&emsp; - Proverbs 6:20-23  
-&emsp; - Proverbs 7:4  
-&emsp; - Matthew 15:6  
-&emsp; Parable of Ten Virgins  
-&emsp; - Proverbs 8:34  
-&emsp; Praise Jesus  
-&emsp; - Proverbs 12:8  
+&emsp; Matthew 15:4
+  - Proverbs 4:5-9
+  - Proverbs 6:20-23
+  - Proverbs 7:4
+  - Matthew 15:6
+
+&emsp; Parable of Ten Virgins
+  - Proverbs 8:34
+
+&emsp; Praise Jesus
+  - Proverbs 12:8
 

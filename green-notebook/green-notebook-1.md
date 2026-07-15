@@ -181,15 +181,17 @@ Leading oneself and others
 &emsp; Matthew 21:22  
 &emsp; Mark 11:24  
 &emsp; Psalm 100:4  
-&emsp; 1 Thessalonian 5:17  
+&emsp; 1 Thessalonians 5:17  
 &emsp; Philippians 4:6  
+&emsp; ! Peter 5:5-7  
+&emsp; Matthew 6:5-8  
 
-
-
-
-
-
-
+Pray with Confidence
+  - Abide, John 15:7
+  - Ask, Matthew 7:7-8
+  - Believe, Matthew 21:22, Mark 11:22, John 16:24
+  - Receive, John 16:24
+  - Conclusion, Philippians 4:8
 
 
 

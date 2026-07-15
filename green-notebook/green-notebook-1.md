@@ -133,5 +133,31 @@ Leading oneself and others
 &emsp; Matthew 18:3  
 &emsp; Matthew 19:23  
 &emsp; Psalm 34:15  
-&emsp; James 5:16
-___
+&emsp; James 5:16  
+&emsp; Matthew 6:33  
+&emsp; John 3:3  
+&emsp; Genesis 1:26  
+&emsp; Jeremiah  
+&emsp; Ephesians 4:20-22  
+&emsp; Ephesians 4:23-24  
+&emsp; John 3:4-5  
+&emsp; John 3:6-7  
+&emsp; Ezekiel 36:26-28  
+&emsp; Romans 3:23  
+&emsp; Romans 6:23  
+&emsp; Romans 5:8  
+&emsp; 1 John 1:9  
+&emsp; Luke 13:3  
+&emsp; Romans 10:9-10  
+&emsp; Romans 14:17
+
+
+
+
+
+
+
+
+
+
+

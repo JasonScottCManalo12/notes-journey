@@ -295,4 +295,19 @@
     Clustering is the art of
     organized clutter
 
+###
+    All I ever want is
+      - To know God
+      - To know myself
+      - To make friends
+      - To have a perfect family
 
+    But everything is lost because 
+    of the wickedness of the heart.
+
+    Knowing God's Power, I became
+    proud of myself.
+
+    All I need to do is...
+    All I see is...
+    

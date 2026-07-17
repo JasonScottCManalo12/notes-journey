@@ -14,7 +14,7 @@
 
 ### Web Development
 1. **Web Development**
-    1.1 [Introduction to Web Development]() | [Return]()
+    1. [Introduction to Web Development]() | [Return]()
 2. **HTML**
 3. **CSS**
 4. **JavaScript**

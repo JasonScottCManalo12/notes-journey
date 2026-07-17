@@ -35,20 +35,19 @@
         - 0947-949-5200
         - http://philiphone.com
         - St. Francis, City of Manila
-      
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+    - http://makerlab-electronics.com
+        - Landline: (02) 513-2885
+        - Mobile: 0913-661-9300, 0917-299-892
+        - ph.makerlab@gmail.com
+        - Tomas Mapua St., Sta. Cruz, Manila
+        - BPI/BDO/LBC/Globe Cash/Paypal/MasterCard/Visa/American Express
+    - http://ph.rs-online.com/web/b/arduino
+        - RS Components Corporation
+        - 21/F Multinational Bancorporation Centre 6805 Ayala Avenue Makati City Philippines
+        - +632-888-4030
+        - online.ph@rs-components.com
+        - Monday - Friday, 9 am - 6 pm
+        - Visa/Mastercard
+    - http://mouser.ph/arduino
+        - 3 Changi North Street 2 LogisTech Building #03-01B Singapore 498827
+        - +65-6788-9233

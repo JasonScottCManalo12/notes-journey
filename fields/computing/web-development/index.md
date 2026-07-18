@@ -13,7 +13,7 @@
 
 ### Basic Structure
 
-Example: \
+Example:
 
     <html>
         <head></head>

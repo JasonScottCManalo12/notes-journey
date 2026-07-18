@@ -5,11 +5,13 @@
 2. [Technical and Services]() | [Return]()
 3. [Theories and Applications]() | [Return]()
 4. [Research and Development]() | [Return]()
-\
-\
-\
-\
-\
+
+<br>
+<br>
+<br>
+<br>
+<br>
+
 ### Healthcare Field
 1. [Fundamentals and Foundation]() | [Return]()
       1. [Anatomy]() | [Return](#index)
@@ -18,11 +20,13 @@
 2. [Technical and Services]() | [Return]()
 3. [Theories and Applications]() | [Return]()
 4. [Research and Development]() | [Return]()
-\
-\
-\
-\
-\
+
+<br>
+<br>
+<br>
+<br>
+<br>
+
 ### Computing Field
 1.  [Fundamentals and Foundation]() | [Return]()
       1. [Communication in the English Language]() | [Return]()
@@ -43,11 +47,13 @@
       1. [Robotics]() | [Return]()
       2. [Artificial Intelligence]() | [Return]()
       3. [Cybersecurity]() | [Return]()
-\
-\
-\
-\
-\
+
+<br>
+<br>
+<br>
+<br>
+<br>
+
 ### Web Development
 1. **Web Development**
       1. [Introduction to Web Development]() | [Return]()

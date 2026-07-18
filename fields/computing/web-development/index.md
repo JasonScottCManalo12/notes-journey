@@ -13,6 +13,13 @@
 
 ### Basic Structure
 
+  <code>
+    <html>
+      <head></head>
+      <body></body>
+    </html>
+  </code>
+
 <br>
 <br>
 <br>

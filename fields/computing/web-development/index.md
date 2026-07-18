@@ -39,6 +39,17 @@ Example:
 
 ### Tags and Attributes
 
+#### Tags
+1. HTML
+2. DOCTYPE
+3. HEAD
+4. BODY
+5. TITLE
+6. HEADING
+7. TEXT ELEMENTS
+8. TEXT FORMATTING
+
+
 <br>
 <br>
 <br>

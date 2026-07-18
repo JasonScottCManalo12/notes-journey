@@ -5,6 +5,7 @@
 2. [Intermediate Structure](#intermediate-structure)
 3. [Advanced Structure](#advanced-structure)
 4. [Tags and Attributes](#tags-and-attributes)
+5. [Best Practices](#best-practices)
 
 <br>
 <br>
@@ -34,3 +35,8 @@
 <br>
 <br>
 
+### Best Practices
+
+<br>
+<br>
+<br>

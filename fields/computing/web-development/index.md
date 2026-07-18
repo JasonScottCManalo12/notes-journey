@@ -13,12 +13,13 @@
 
 ### Basic Structure
 
-<code>
+Example: \
+
     <html>
         <head></head>
         <body></body>
     </html>
-</code>
+
 
 <br>
 <br>

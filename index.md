@@ -1,9 +1,9 @@
 # Index
 
 ### Field List
-| [Communication Field](#communication-field) | [Healthcare Field](#healthcare-field) | [Computing Field](#computing-field) | \ 
+| [Communication Field](#communication-field) | [Healthcare Field](#healthcare-field) | [Computing Field](#computing-field) | \
 | [Education Field](#education-field) [Business Field](#business-field) | [Agriculture Field](#agriculture-field) | \
-| [Law Field](#law-field) | [Environment Field](#environment-field) | [Engineering Field](#engineerling-field) | \ 
+| [Law Field](#law-field) | [Environment Field](#environment-field) | [Engineering Field](#engineerling-field) | \
 | [Web Development](#web-development) | 
 
 ### Exams and Careers

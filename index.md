@@ -1,10 +1,10 @@
 # Index
 
 ### Field List
-| [Communication Field](#communication-field) | [Healthcare Field](#healthcare-field) | [Computing Field](#computing-field) | \
-| [Education Field](#education-field) [Business Field](#business-field) | [Agriculture Field](#agriculture-field) | \
-| [Law Field](#law-field) | [Environment Field](#environment-field) | [Engineering Field](#engineerling-field) | \
-| [Web Development](#web-development) | 
+ | [Agriculture Field](#agriculture-field) | [Business Field](#business-field) | [Communication Field](#communication-field) | \
+ | [Computing Field](#computing-field) | [Education Field](#education-field) | [Engineering Field](#engineerling-field) | \
+ | [Environment Field](#environment-field) | [Healthcare Field](#healthcare-field) | [Law Field](#law-field) | \
+ | [Web Development](#web-development) |
 
 ### Exams and Careers
 | [Exams](#exams) | [Careers](#careers) |
